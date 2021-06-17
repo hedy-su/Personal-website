@@ -2,6 +2,8 @@ ACS106130蘇孝芳
 
 主題：個人收藏網頁
 功用：偷懶用，常用的連結放一起就不用一直搜尋了
+介紹影片連結：https://drive.google.com/file/d/1uDLQFbWr3YkKRcb_Aw_2iepqdagdIwc8/view?usp=sharing
+(下載看比較清楚
 
 *注意事項*
 
